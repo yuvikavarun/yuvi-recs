@@ -1,0 +1,15 @@
+- 10 Things I Hate About You (4.7/5)
+- La La Land (3.5/5)
+- Princess Diaries (4/5)
+- To All The Boys I've Loved Before - Triology (4/5)
+- How To Lose A Guy In 10 Days
+- 300 Days of Summer
+- Legally Blonde
+- Love Actually
+- Notting Hill
+- Uptowwn Girls
+- Dead Poets Society
+- Little Women
+- The Notebook
+- Me Before You
+- Perks of Being a Wildflower
