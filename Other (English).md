@@ -1,0 +1,11 @@
+- Fight Club (starts off weird, but trust me)
+- Jojo Rabbit
+- Social Network
+- Die Hard
+- Whiplash
+- Oppenheimer
+- Blade Runner
+- Karate Kid
+- Spy Next Door
+- Kunfu Panda
+- Rattatoulie
