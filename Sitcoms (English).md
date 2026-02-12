@@ -1,0 +1,6 @@
+- Modern Family (4/5)
+- Big Bang Theory (3.9/5)
+- Abott's Elementary
+- Fresh Off The Boat
+- F.R.I.E.N.D.S
+- Never Have I Ever
