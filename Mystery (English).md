@@ -1,0 +1,3 @@
+- A Good Girl's Guide To Murder
+- One Of Us Is Lying
+- Vampire Diaries (a lil looong)
