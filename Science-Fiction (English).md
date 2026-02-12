@@ -1,0 +1,12 @@
+- ALL OF MARVEL
+- ALL OF STAR WARS
+- DARK (warning: explicit content)
+- Stranger Things
+- Back To The Future
+- Interstellar
+- The OA (warning: explicit content, violence, foul language)
+- Inception
+- The Matrix
+- Wall E
+- Everything, Everywhere, All At Once
+- 2001: A Space Odyssey
